@@ -68,3 +68,74 @@ Everything that follows in this archive happened on this account. Every achievem
 This time, I wasn't just playing to reach the endgame.
 
 I was writing a new story.
+
+
+---
+
+# Chapter 3 — Fortune Smiles Again
+
+With my new account ready, it was finally time to begin again.
+
+Just like every new player, I started with the **20 free spins** given by the game. Before anything else, though, I had to complete the tutorial.
+
+And honestly...
+
+**The tutorial is absolute cinema.**
+
+Most games teach you the controls with boring objectives. Jujutsu Infinite does something completely different.
+
+It throws you into an epic battle where you play as **Gojo** against **Heian Era Sukuna**, complete with incredible cutscenes, powerful abilities, and a fight that feels like it came straight out of the anime. Calling it a "tutorial" almost feels wrong—it was one of the coolest introductions I've ever experienced in a game.
+
+Once I finished it, I joined the official Roblox group to claim the additional **50 free spins**, bringing my total to **70 spins**, just like on my previous account.
+
+Then came the moment of truth.
+
+I opened the spin menu and began rolling for my innates.
+
+Five spins in...
+
+**Star Rage.**
+
+I just stared at the screen.
+
+*"Star Rage... again?"*
+
+Out of every Special Grade in the game, I had rolled the same one that carried me through my original account.
+
+Maybe Star Rage really did like me.
+
+I kept spinning, wondering if my luck had already run out.
+
+Then, around my **56th spin**, something unbelievable happened.
+
+**Soul Manipulation.**
+
+Another **Special Grade Innate.**
+
+At that point I genuinely started wondering if I was doing something wrong...
+
+Or somehow doing everything right.
+
+At the time of this journey, the game's innates were divided into five rarities:
+
+* **Common (70%)** — Tool Manipulation, Construction, Cloning Technique
+* **Uncommon (20%)** — Boogie Woogie, Blazing Courage
+* **Rare (7%)** — Cursed Speech, Cryokinesis, Ratio, Blood Manipulation, Straw Doll
+* **Legendary (2.75%)** — Plant Manipulation, Puppet, Judgeman, Volcano, Hydrokinesis, Projection
+* **Special Grade (0.25%)** — Thunder God, Soul King, Ancient Construction, Cursed Queen, Soul Manipulation, Demon Vessel, Infinity, Gambler Fever, and Star Rage
+
+The odds of rolling even **one** Special Grade were incredibly low.
+
+I had just rolled **two** within my first **56 spins**.
+
+Jujutsu Infinite allows players to equip **two innates at once**, while additional slots can be unlocked through the **Innate Slot 3** and **Innate Slot 4** gamepasses. Since I didn't have any Robux, those extra slots weren't an option for me.
+
+Another important gamepass was the **Innate Bag**. Without it, every time you rerolled your innates, the old one would be **lost until you rolled it again or purchased the Innate Bag**. This is because the Innate Bag secretly keeps a record of every innate you've ever rolled, even if you don't own the gamepass yet. The moment you purchase it, all of those previously rolled innates become available to equip. Since I didn't own the Innate Bag and had already rolled **Star Rage** and **Soul Manipulation**, there was absolutely no reason to risk rerolling them.
+
+I kept **Star Rage** and **Soul Manipulation** exactly as they were.
+
+With my innates decided, there was nothing left to do.
+
+I stepped into the main map...
+
+And my second journey had officially begun.

@@ -40,3 +40,31 @@ It was one of the lowest points of my Jujutsu Infinite journey—but it was not 
 
 
 ---
+
+# Chapter 2 — A New Beginning
+
+After losing my original account, I spent some time thinking about whether I should continue playing Jujutsu Infinite at all.
+
+The ban wasn't my fault, but it had taken away everything I had worked for. Starting over from nothing felt unfair.
+
+Even so, I realized something important.
+
+I wasn't attached to my old account—I was attached to **Jujutsu Infinite itself**. I still enjoyed the game, and I wasn't ready to leave it behind because of something I couldn't control.
+
+So I made a decision.
+
+Instead of giving up, I would start again.
+
+I used my younger brother's Roblox account, **"anshpro3737,"** and began a completely new journey from scratch.
+
+There were no high levels waiting for me, no rare items, and no progress carried over from before. Everything I achieved from this point onward would have to be earned again.
+
+Looking back now, this wasn't just another restart.
+
+**This was the true beginning of my Jujutsu Infinite journey.**
+
+Everything that follows in this archive happened on this account. Every achievement, every challenge, every rare drop, every trade, every victory, and every lesson belongs to the story that started here.
+
+This time, I wasn't just playing to reach the endgame.
+
+I was writing a new story.
